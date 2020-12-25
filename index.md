@@ -6,4 +6,4 @@ You can download this app from App Store and Play Store.
 
 ### Support or Contact
 
-If you have any feedback or issues reach me on productions.cornerstone@gmail.com
+If you have any feedback or issues reach me on [productions.cornerstone@gmail.com]
